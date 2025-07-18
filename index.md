@@ -41,7 +41,7 @@ We may update this Privacy Policy as needed. Changes will be posted here with an
 
 If you have any questions about this Privacy Policy, please contact us at:
 
-**Email:** batuhan_karadag@icloud.com
+**Email:** info@hypnowavelab.com
 
 ---
 
